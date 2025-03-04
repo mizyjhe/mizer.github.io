@@ -1,1 +1,0 @@
-po roflu, po prikolu
